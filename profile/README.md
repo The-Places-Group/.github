@@ -7,3 +7,6 @@
 ## 🏪 The Market Place
 <a href="https://discord.gg/sNk8sh2j8f"><img src="https://discord.com/api/guilds/903802294573858826/widget.png?style=banner2" alt="Rejoins The Market Place !"/></a><br>
 *En cours de rédaction...*
+
+## ™️ Soon
+*Bientôt... (peut-être)*
